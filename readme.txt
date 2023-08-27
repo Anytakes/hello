@@ -1,1 +1,1 @@
-Git cherry pick
+Za4em pod 4ernogo
