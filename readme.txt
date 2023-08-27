@@ -1,2 +1,1 @@
-Kurasun
-Za4em pod 4ernogo
+close the mountain fuck it all
